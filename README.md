@@ -10,9 +10,9 @@ I'm deeply passionate about space science and contribute to real research as a *
 📚 Preparing for **GATE** & future astrophysics career  
 🌌 Dream: To work with **NASA, ISRO, or SETI** one day!
 
-📍 From: Hulagabali, Karnataka  
+📍 From: Belagavi, Karnataka  
 📫 Email: geetachougala44@gmail.com  
 🔗 [LinkedIn](https://www.linkedin.com/in/geetanjali-chougala-a22369312)  
-📸 [Instagram](https://www.instagram.com/geet_anjali9000/)
+📸
 
 > “Aim for the moon. If you miss, you'll land among the stars.” 🌠
