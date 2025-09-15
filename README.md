@@ -1,8 +1,8 @@
 # 👩‍🚀 Geetanjali Chougala
 
-**Citizen Scientist | Space Electronics Enthusiast | ECE @ MITK | Future NASA Astrophysicist**
+**Citizen Scientist | Space Electronics Enthusiast | BE @ VTU | Future NASA Astrophysicist**
 
-Hi! I'm Geetanjali, an Electronics and Communication Engineering student at MITK Kundapura.  
+Hi! I'm Geetanjali, Aerospace Engineering student at VTU.  
 I'm deeply passionate about space science and contribute to real research as a **Citizen Scientist** through [Zooniverse](https://www.zooniverse.org/).
 
 🔭 Participated in **NASA Space Apps Challenge**  
